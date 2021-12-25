@@ -3,6 +3,6 @@
 
 It's a Christmas card for good wishes.
 
-Card: http://christmas.piero-sabino.it/
+Card: http://tharukrenuja.ml/Christmas-card
 
 Author: Piero Sabino
